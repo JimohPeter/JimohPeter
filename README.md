@@ -26,7 +26,7 @@
 [linkedin](https://www.linkedin.com/in/jimoh-peter)
 
 <!--
-*Emmanuel-Uduma/Emmanuel* is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+*Jimoh Peter* is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
 
