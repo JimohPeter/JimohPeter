@@ -20,8 +20,8 @@
 - Microsoft Excel  
   
 ### 🤳 Connect with me
-[twitter](https://twitter.com/EmmanuelUduma17?t=uoYLcOKstR-YErHwdM8Txw&s=09) /
-[facebook](https://www.facebook.com/emmanuel.uduma.543) /
+[twitter](https://twitter.com/callme_oshin?t=LUnxaEz5w-AIzjDoI6MssA&s=09)
+[facebook](https://www.facebook.com/oshin.jpeter?mibextid=ZbWKwL)
 [instagram](https://www.instagram.com/chukwuhorom/) /
 [linkedin](https://linkedin.com/in/emmanueluduma)
 
