@@ -22,7 +22,7 @@
 ### 🤳 Connect with me
 [twitter](https://twitter.com/callme_oshin?t=LUnxaEz5w-AIzjDoI6MssA&s=09) /
 [facebook](https://www.facebook.com/oshin.jpeter?mibextid=ZbWKwL) /
-[instagram](https://www.instagram.com/chukwuhorom/) /
+[instagram](https://instagram.com/callme_oshin?igshid=ZGUzMzM3NWJiOQ==) /
 [linkedin](https://linkedin.com/in/emmanueluduma)
 
 <!--
